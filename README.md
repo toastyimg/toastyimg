@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @toastyimg
 - 👀 I’m interested in...nothing
 - 🌱 I’m currently learning ... python
-- 💞️ I’m looking to collaborate on... pornography starring your mother
+- 💞️ I’m looking to collaborate on... your bday cake
 - 📫 How to reach me ... dont
 
 <!---
